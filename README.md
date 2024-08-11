@@ -7,7 +7,7 @@ For Pony Town only!
 4. INTJ-T.
 5. Idk how to explain my personality but you can try to interact with me to see my personality.
 6. I have Borderline Personality Disorder (BPD) which can affect how I respond. I might need some extra space or time to process things, so please interact with me cautiously and kindly. Your understanding means a lot.
-7. C+H and w2i if I'm afk!
+7. C+H (Idm being covered) and w2i if I'm afk!
 8. I like PJSK, Genshin Impact, Honkai Star-rail, Roblox, Danganronpa, Black Butler, my friends, and more (You can ask about it if you want, Idm.)
 9. Dni - Basic dni critea, I will block you if I find you making me uncomfy.
 
