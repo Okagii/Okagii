@@ -2,7 +2,7 @@
 
 For Pony Town only!
 1. Hello, my name is Okagi/Tota, usually my friends call me Okagi. But whatever, any nicknames are fine. Except if it's for making fun of me.
-2. He/Him or Any pronouns! Idm/idc.
+2. He/Him.
 3. Idn/Eng, good at both languages!
 4. INTJ-T.
 5. Idk how to explain myself but you can try to interact with me to know. 
