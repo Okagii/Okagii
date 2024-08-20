@@ -10,4 +10,4 @@ For Pony Town only!
 7. C+H (Idm being covered or asked to move) and w2i if I'm afk!
 8. I like PJSK, Genshin Impact, Honkai Star-rail, Roblox, Danganronpa, Black Butler, my friends, and more (You can ask about it if you want, Idm.)
 9. Dni - Basic dni critea, I will block you if I find you making me uncomfy.
-10. Dnc - No copy, but taking inspo is fine (if you're my friends)
+10. Dnc - No copy/inspo!
