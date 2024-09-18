@@ -1,2 +1,1 @@
-![KDJ and YJH](https://github.com/user-attachments/assets/3373deeb-72d5-4bac-a0ee-5b429ec93327)
-
+![image](https://github.com/user-attachments/assets/52e6a326-4987-4459-a62b-de60e9c47f55)
